@@ -8,7 +8,7 @@
 #### 8
 #### 9 Github is really awesome. 
 #### 10
-#### 11 Mr.Mueller is okay
+#### 11 Mr.Mueller is alright
 #### 12
 #### 13
 #### 14
